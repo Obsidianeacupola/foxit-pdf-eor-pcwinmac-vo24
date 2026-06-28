@@ -1,4 +1,4 @@
-# 
+# Intelligent Foxit PDF Editor plugins pour Mac OS | Nouveau Foxit PDF Editor plugins pour PC Windows. Avec flux de travail d'approbation et signatures numériques — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
